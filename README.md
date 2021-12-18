@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Fazel
+- co-founder & manager of TheMFG programming team
